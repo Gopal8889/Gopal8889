@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gopal8889
-- 👀 I’m interested in DATA.
+- 👀 I’m interested in DATA AND CODEING.
 - 🌱 I’m currently learning DATA SCIECE AND DATA ANALYSTS.
 - 📫 How to reach me ..
 - MY LINKEDIN PROFILE-- GOPAL CHOUDHARY,
